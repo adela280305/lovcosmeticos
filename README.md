@@ -1,2 +1,0 @@
-# lovcosmeticos
-belleza verdadera
